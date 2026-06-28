@@ -1,4 +1,4 @@
-#  
+#  rivals advanced Scripts offers the most advanced rivals Script, with unlimited stamina and esp. Perfect for dominating any match.
 
 
 
